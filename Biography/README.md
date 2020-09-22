@@ -1,1 +1,1 @@
-<b> All the books are related to Biography of famous personalities.</b>
+<b> All the books heere are related to "Biography" genre of novels</b>
