@@ -3,4 +3,4 @@
 
 <b>Credits for downloading the books is:-</b> https://www.pdfdrive.com/   
 
-<b>Total respect is given to the original respective authors of all the books been posted here.</b>
+<b>Whole and sole respect is given to the original respective authors of all the books been posted here.</b>
